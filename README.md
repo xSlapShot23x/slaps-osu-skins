@@ -10,3 +10,12 @@
 
 # [ - SlapShot Skin v1.1『YUGEN』](https://mega.nz/file/f6hjjI7b#QMVub2iwjyL-UwT5m6tRmGdDt9nINO5TVGMAqDA8KpQ)
 ![osu! Screenshot 2021 05 12 - 15 22 06 39](https://user-images.githubusercontent.com/83562005/118032979-40b2d600-b336-11eb-892b-b1764f7c4a33.png)
+
+# [『slapcock』](https://mega.nz/file/2iJgmDxa#GMDfNUmhB-m8RQVIljLBz8eQXwUNkM28NHOABU4hWcc)
+![osu! Screenshot 2021 05 12 - 15 27 27 60](https://user-images.githubusercontent.com/83562005/118033761-30e7c180-b337-11eb-861d-c63775f89a2d.png)
+
+# [ 404 SkinNotFound v2 ](https://mega.nz/file/PnhgyZAb#7tUCGYs4c5fo7MUb42iGv0RpFp8dzJa85DG25niUvLg)
+![osu! Screenshot 2021 05 12 - 15 49 03 61](https://user-images.githubusercontent.com/83562005/118035865-ce43f500-b339-11eb-9f00-4b1c8acc998f.png)
+
+# [ Seoul Edit ]()
+![osu! Screenshot 2021 05 12 - 16 04 37 05](https://user-images.githubusercontent.com/83562005/118037486-ea489600-b33b-11eb-9e96-06561565657e.png)
