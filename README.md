@@ -8,7 +8,7 @@
 # [ - SlapShot Skin v1.1『NM』](https://mega.nz/file/yvZVXIhZ#BzLHkay-XMk7IqBRB3y9AeqSmD2kUkm8wxljts_PxH0)
 ![osu! Screenshot 2021 05 12 - 15 17 25 91](https://user-images.githubusercontent.com/83562005/118032040-347a4900-b335-11eb-9bf1-d2ed893e5bd2.png)
 
-# [ - SlapShot Skin v1.1『YUGEN』](https://mega.nz/file/f6hjjI7b#QMVub2iwjyL-UwT5m6tRmGdDt9nINO5TVGMAqDA8KpQ)
+# [ - SlapShot Skin v1.1『YUGEN』](https://mega.nz/file/b2QlFKpI#YAsYmpENVMQa-oE91pDbfZTPLlAuybDHegqBwCj9duY)
 ![osu! Screenshot 2021 05 12 - 15 22 06 39](https://user-images.githubusercontent.com/83562005/118032979-40b2d600-b336-11eb-892b-b1764f7c4a33.png)
 
 # [『slapcock』](https://mega.nz/file/2iJgmDxa#GMDfNUmhB-m8RQVIljLBz8eQXwUNkM28NHOABU4hWcc)
