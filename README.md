@@ -14,6 +14,9 @@
 # [『slapcock』](https://mega.nz/file/2iJgmDxa#GMDfNUmhB-m8RQVIljLBz8eQXwUNkM28NHOABU4hWcc)
 ![osu! Screenshot 2021 05 12 - 15 27 27 60](https://user-images.githubusercontent.com/83562005/118033761-30e7c180-b337-11eb-861d-c63775f89a2d.png)
 
+# [『slapcock2』](https://mega.nz/file/zuIjwYxI#RyHR9JFjWu4ZVIvUyvc5AGGegOhYukhabK8n3K-nihQ)
+![osu! Screenshot 2021 08 14 - 13 56 47 67](https://user-images.githubusercontent.com/83562005/129456230-f82e06c5-5922-4295-b87a-1f9794737fcc.png)
+
 # [ 404 SkinNotFound v2 ](https://mega.nz/file/PnhgyZAb#7tUCGYs4c5fo7MUb42iGv0RpFp8dzJa85DG25niUvLg)
 ![osu! Screenshot 2021 05 12 - 15 49 03 61](https://user-images.githubusercontent.com/83562005/118035865-ce43f500-b339-11eb-9f00-4b1c8acc998f.png)
 
