@@ -5,6 +5,9 @@
 # [-『NM』 SlapShot Skin v2](https://mega.nz/file/OgNH2YJa#jArBwsVeSPmW3-UdqJ2DturB5w3b2EU6hTTeeeAY_Co)
 ![osu! Screenshot 2022 04 22 - 07 58 33 02](https://user-images.githubusercontent.com/83562005/164714833-ce68deb5-3c92-4893-bdea-2299d7a90ac1.png)
 
+# [-『YN』 SlapShot Skin v2](https://mega.nz/file/jxcDkSyY#XKiE0G3Sa72m2SQhXJRJk8TbhbFBezBgIBbD858sizk)
+![osu! Screenshot 2022 04 22 - 08 39 56 02](https://user-images.githubusercontent.com/83562005/164716777-691453e7-1f9c-44fd-8945-b74abae83b40.png)
+
 # [ - SlapShot Skin v1.1『DT』](https://mega.nz/file/HvAzFYxC#_V-j0Llp5E85W1OExBdpJEFrbe8SnqxrNVWAhhx_WL0)
 ![osu! Screenshot 2021 08 14 - 11 37 00 22](https://user-images.githubusercontent.com/83562005/129455927-1cdfbcc1-1f01-4b46-aae7-91ba05af6f7a.png)
 
