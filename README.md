@@ -62,5 +62,6 @@
 # [ boop ](https://mega.nz/file/WlVB3bxI#KY4RdeKMbaEt6u5Z8Em5lO8ebjQqRWYce-1Bvv_VYjU)
 ![osu! Screenshot 2022 04 22 - 09 20 25 38](https://user-images.githubusercontent.com/83562005/164723906-51605bcf-5c5d-4837-8361-9cb848b21161.png)
 
-![Okaygepfp](https://user-images.githubusercontent.com/83562005/164724437-475fcfc8-0bb2-46d1-ac9c-2727e075753b.png)
-
+<p align="center">
+  <img src="![Okaygepfp](https://user-images.githubusercontent.com/83562005/164724598-f34612a5-6f20-40b6-a5d5-ffec023a0ce7.png)" />
+</p>
