@@ -2,7 +2,7 @@
 
 ![Untitled (6)](https://user-images.githubusercontent.com/83562005/118030929-ef094c00-b333-11eb-9732-54445e4d4b13.png)
 
-# [-『NM』 SlapShot Skin v2_](https://mega.nz/file/OgNH2YJa#jArBwsVeSPmW3-UdqJ2DturB5w3b2EU6hTTeeeAY_Co)
+# [-『NM』 SlapShot Skin v2](https://mega.nz/file/OgNH2YJa#jArBwsVeSPmW3-UdqJ2DturB5w3b2EU6hTTeeeAY_Co)
 ![osu! Screenshot 2022 04 22 - 07 58 33 02](https://user-images.githubusercontent.com/83562005/164714833-ce68deb5-3c92-4893-bdea-2299d7a90ac1.png)
 
 # [ - SlapShot Skin v1.1『DT』](https://mega.nz/file/HvAzFYxC#_V-j0Llp5E85W1OExBdpJEFrbe8SnqxrNVWAhhx_WL0)
