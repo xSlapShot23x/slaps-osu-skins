@@ -32,6 +32,9 @@
 # [ dracula ](https://mega.nz/file/79MTzSzB#qdAL4G0BhyfLl9SAthDhCNN4b3SbLhXmpBhpCDRCahg)
 ![osu! Screenshot 2022 04 22 - 09 05 39 01](https://user-images.githubusercontent.com/83562005/164720852-897fe91d-3533-4b11-9fff-1c835e7bff2a.png)
 
+# [ Aristia(Edit) ](https://mega.nz/file/C9ET2ARJ#GJChlMm1VQ6FGNTFLIbKUBfCHgr3PJ4k9qfwo6mygl0)
+![osu! Screenshot 2022 04 22 - 09 13 05 96](https://user-images.githubusercontent.com/83562005/164721684-538abc4b-f248-42f8-9606-14df5e92f04e.png)
+
 # [ Seoul Edit ](https://mega.nz/file/qiI3SApL#k59j3wJc4mJ0hvkrs4x7A-P9a-g4WDAEUrMNk5JS5D4)
 ![osu! Screenshot 2021 05 12 - 16 04 37 05](https://user-images.githubusercontent.com/83562005/118037486-ea489600-b33b-11eb-9e96-06561565657e.png)
 
