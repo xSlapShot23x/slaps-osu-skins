@@ -4,7 +4,8 @@
 
 # *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU AND I'LL FIX IT*
 
-# [『slapshot』]
+# [『slapshot』](https://mega.nz/file/Ll8SxZza#Hzvoi7Ac99bNQo1XZQIA_hdmI01BNQ6ia8qlPY_no7M)
+![osu! Screenshot 2023 01 15 - 04 34 30 28](https://user-images.githubusercontent.com/83562005/212533606-194c9449-b2a0-4af0-aeb9-7ed184f67072.png)
 
 # [-『DT』 SlapShot Skin v2](https://mega.nz/file/OkdU1SSJ#kQ62LUiAXX9rhU5L0_EEnXnMU7Dlb3u-EhA7ptoU2ww)
 ![osu! Screenshot 2022 04 22 - 08 48 31 66](https://user-images.githubusercontent.com/83562005/164717575-02b7f9b9-676d-49f9-8fff-c4af7fd0706a.png)
