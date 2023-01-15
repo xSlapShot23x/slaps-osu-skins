@@ -14,17 +14,17 @@
 # [ - SlapShot Skin v1.1『DT』](https://mega.nz/file/PhMwzDaQ#ZI_xca3agvwSa8OE-OMoUfIR7AHrUJ68ko50BCTTtz8)
 ![osu! Screenshot 2021 08 14 - 11 37 00 22](https://user-images.githubusercontent.com/83562005/129455927-1cdfbcc1-1f01-4b46-aae7-91ba05af6f7a.png)
 
-# [ - SlapShot Skin v1.1『NM』](https://mega.nz/file/yvZVXIhZ#BzLHkay-XMk7IqBRB3y9AeqSmD2kUkm8wxljts_PxH0)
+# [ - SlapShot Skin v1.1『NM』](https://mega.nz/file/WxkSVALQ#rmap07CyxaVB3DJ_nLA4E2iVd2Bs1Ij2NJz86iylv3k)
 ![osu! Screenshot 2021 05 12 - 15 17 25 91](https://user-images.githubusercontent.com/83562005/118032040-347a4900-b335-11eb-9bf1-d2ed893e5bd2.png)
 
-# [ - SlapShot Skin v1.1『YUGEN』](https://mega.nz/file/b2QlFKpI#YAsYmpENVMQa-oE91pDbfZTPLlAuybDHegqBwCj9duY)
+# [ - SlapShot Skin v1.1『YUGEN』](https://mega.nz/file/XxsCACTK#McZOwCiKRchz8MzVeVAdUFlTrvgVdgPazBVSy0aFcf8)
 ![osu! Screenshot 2021 05 12 - 15 22 06 39](https://user-images.githubusercontent.com/83562005/118032979-40b2d600-b336-11eb-892b-b1764f7c4a33.png)
 
-# [『slapcock』](https://mega.nz/file/Hh92wKBB#7azIJgWZK9o_sqMcGiCmmzKZHM612VCAKyt4mi_Me3I)
+# [『slapcock』](https://mega.nz/file/TtFDgbqZ#ctb3Kv0vvOSXzLnPXPcWWB94x3vzOovcCZUZkeh5wJM)
 ![osu! Screenshot 2022 04 22 - 08 56 44 49](https://user-images.githubusercontent.com/83562005/164719133-ccd6beeb-15d4-4ab8-a278-622e1514bd28.png)
 
-# [『slapcock2』](https://mega.nz/file/7l8gyILb#gMcmIY8sbXkqZzCAAhgm76JHX2w_xFoMk3Z8iV9XV2Q)
-![osu! Screenshot 2021 08 14 - 13 56 47 67](https://user-images.githubusercontent.com/83562005/129456230-f82e06c5-5922-4295-b87a-1f9794737fcc.png)
+# [『slapcock2』](https://mega.nz/file/SssHHD4C#jP1zjK67xvAqZECkiS-Bb4u-K5aTT9XIqhW0P0ybELQ)
+![osu! Screenshot 2023 01 15 - 03 46 18 34](https://user-images.githubusercontent.com/83562005/212531636-a7c169df-8e43-43b3-8463-3ba17a6a2e55.png)
 
 # [ 404 SkinNotFound v2 ](https://mega.nz/file/PnhgyZAb#7tUCGYs4c5fo7MUb42iGv0RpFp8dzJa85DG25niUvLg)
 ![osu! Screenshot 2021 05 12 - 15 49 03 61](https://user-images.githubusercontent.com/83562005/118035865-ce43f500-b339-11eb-9f00-4b1c8acc998f.png)
