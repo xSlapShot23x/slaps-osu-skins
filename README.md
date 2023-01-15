@@ -2,6 +2,8 @@
 
 ![Untitled (6)](https://user-images.githubusercontent.com/83562005/118030929-ef094c00-b333-11eb-9732-54445e4d4b13.png)
 
+# *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU AND I'LL FIX IT*
+
 # [『slapshot』]
 
 # [-『DT』 SlapShot Skin v2](https://mega.nz/file/OkdU1SSJ#kQ62LUiAXX9rhU5L0_EEnXnMU7Dlb3u-EhA7ptoU2ww)
