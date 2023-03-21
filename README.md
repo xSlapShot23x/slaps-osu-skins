@@ -7,14 +7,14 @@
 # [『slapshot』](https://mega.nz/file/Ll8SxZza#Hzvoi7Ac99bNQo1XZQIA_hdmI01BNQ6ia8qlPY_no7M)
 ![osu! Screenshot 2023 01 15 - 04 34 30 28](https://user-images.githubusercontent.com/83562005/212533606-194c9449-b2a0-4af0-aeb9-7ed184f67072.png)
 
-# [-『DT』 SlapShot Skin v2](https://mega.nz/file/OkdU1SSJ#kQ62LUiAXX9rhU5L0_EEnXnMU7Dlb3u-EhA7ptoU2ww)
-![osu! Screenshot 2022 04 22 - 08 48 31 66](https://user-images.githubusercontent.com/83562005/164717575-02b7f9b9-676d-49f9-8fff-c4af7fd0706a.png)
+# [-『DT』 SlapShot Skin v2](https://mega.nz/file/atEFnayb#64Mjs4uQfRBMCWrwZvTde6pQAZkVbMFIOTRck_4Z-Ow)
+![osu! Screenshot 2023 03 20 - 20 20 17 89](https://user-images.githubusercontent.com/83562005/226492772-c067ecfc-6d49-4a55-909e-50fee78e17b8.png)
 
 # [-『NM』 SlapShot Skin v2](https://mega.nz/file/atUChRgB#Bs0IDe6o3jI7SLOjpCH-Ag8aIm3XOpHS8JNczYHGmZ0)
-![osu! Screenshot 2022 04 22 - 07 58 33 02](https://user-images.githubusercontent.com/83562005/164714833-ce68deb5-3c92-4893-bdea-2299d7a90ac1.png)
+![osu! Screenshot 2023 03 20 - 20 23 06 71](https://user-images.githubusercontent.com/83562005/226493068-2ffafec5-ab00-4bda-8854-d6c74e00f604.png)
 
-# [-『YN』 SlapShot Skin v2](https://mega.nz/file/jxcDkSyY#XKiE0G3Sa72m2SQhXJRJk8TbhbFBezBgIBbD858sizk)
-![osu! Screenshot 2022 04 22 - 08 39 56 02](https://user-images.githubusercontent.com/83562005/164716777-691453e7-1f9c-44fd-8945-b74abae83b40.png)
+# [-『YN』 SlapShot Skin v2](https://mega.nz/file/n4tnWAqB#4tzO5pGQcQfRjE7-DPmoHyH4xxp9h_5viIIfmki_XFA)
+![osu! Screenshot 2023 03 20 - 20 26 28 96](https://user-images.githubusercontent.com/83562005/226493382-79d72696-4e6e-4842-afa2-8827cc056a11.png)
 
 # [ - SlapShot Skin v1.1『DT』](https://mega.nz/file/PhMwzDaQ#ZI_xca3agvwSa8OE-OMoUfIR7AHrUJ68ko50BCTTtz8)
 ![osu! Screenshot 2021 08 14 - 11 37 00 22](https://user-images.githubusercontent.com/83562005/129455927-1cdfbcc1-1f01-4b46-aae7-91ba05af6f7a.png)
