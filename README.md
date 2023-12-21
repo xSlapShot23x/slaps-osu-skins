@@ -7,9 +7,8 @@
 # [yugen slap edit](https://mega.nz/file/vo1CCDZI#IMIVE_8vErcj7SByC98X51QIB7hPokPrMhmedQy_9YE)
 ![osu! Screenshot 2023 12 20 - 20 31 56 42](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/f1959047-c0c0-4ecc-aa39-6d37ecb02b05)
 
-
 # [『slapshot』](https://mega.nz/file/Ll8SxZza#Hzvoi7Ac99bNQo1XZQIA_hdmI01BNQ6ia8qlPY_no7M)
-![osu! Screenshot 2023 01 15 - 04 34 30 28](https://user-images.githubusercontent.com/83562005/212533606-194c9449-b2a0-4af0-aeb9-7ed184f67072.png)
+![osu! Screenshot 2023 12 20 - 20 41 07 13](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/ab9054b9-92dc-4064-ad99-b343fcf38f1a)
 
 # [-『DT』 SlapShot Skin v2](https://mega.nz/file/601kRCqD#GVdD9qwVnXZ8a2H_jl0zT53dNsmPXsOgOa3d7C7Xbx0)
 ![osu! Screenshot 2023 03 20 - 20 20 17 89](https://user-images.githubusercontent.com/83562005/226492772-c067ecfc-6d49-4a55-909e-50fee78e17b8.png)
