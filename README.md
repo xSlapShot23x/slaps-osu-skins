@@ -11,7 +11,7 @@
 # [『slapshot』](https://mega.nz/file/Ll8SxZza#Hzvoi7Ac99bNQo1XZQIA_hdmI01BNQ6ia8qlPY_no7M)
 ![osu! Screenshot 2023 01 15 - 04 34 30 28](https://user-images.githubusercontent.com/83562005/212533606-194c9449-b2a0-4af0-aeb9-7ed184f67072.png)
 
-# [-『DT』 SlapShot Skin v2](https://mega.nz/file/atEFnayb#64Mjs4uQfRBMCWrwZvTde6pQAZkVbMFIOTRck_4Z-Ow)
+# [-『DT』 SlapShot Skin v2](https://mega.nz/file/601kRCqD#GVdD9qwVnXZ8a2H_jl0zT53dNsmPXsOgOa3d7C7Xbx0)
 ![osu! Screenshot 2023 03 20 - 20 20 17 89](https://user-images.githubusercontent.com/83562005/226492772-c067ecfc-6d49-4a55-909e-50fee78e17b8.png)
 
 # [-『NM』 SlapShot Skin v2](https://mega.nz/file/atUChRgB#Bs0IDe6o3jI7SLOjpCH-Ag8aIm3XOpHS8JNczYHGmZ0)
