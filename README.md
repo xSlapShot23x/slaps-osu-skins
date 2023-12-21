@@ -5,7 +5,8 @@
 # *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU AND I'LL FIX IT*
 
 # [yugen slap edit](https://mega.nz/file/vo1CCDZI#IMIVE_8vErcj7SByC98X51QIB7hPokPrMhmedQy_9YE)
-![osu! Screenshot 2023 01 15 - 04 34 30 28](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/762838d6-096a-43a0-8e6c-90b6d910bd48)
+![osu! Screenshot 2023 12 20 - 20 31 56 42](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/f1959047-c0c0-4ecc-aa39-6d37ecb02b05)
+
 
 # [『slapshot』](https://mega.nz/file/Ll8SxZza#Hzvoi7Ac99bNQo1XZQIA_hdmI01BNQ6ia8qlPY_no7M)
 ![osu! Screenshot 2023 01 15 - 04 34 30 28](https://user-images.githubusercontent.com/83562005/212533606-194c9449-b2a0-4af0-aeb9-7ed184f67072.png)
