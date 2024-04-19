@@ -22,8 +22,8 @@
 # [-『NM』 SlapShot Skin v2](https://mega.nz/file/fhkRhLTb#tIuVmhIACLZxSVy0-SraSHpWwQA0U9zfo-5R9AvUETQ)
 ![osu! Screenshot 2024 04 19 - 09 10 59 44](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/a5112653-b9be-4412-be9c-04d078df53e2)
 
-# [-『YN』 SlapShot Skin v2](https://mega.nz/file/n4tnWAqB#4tzO5pGQcQfRjE7-DPmoHyH4xxp9h_5viIIfmki_XFA)
-![osu! Screenshot 2023 03 20 - 20 26 28 96](https://user-images.githubusercontent.com/83562005/226493382-79d72696-4e6e-4842-afa2-8827cc056a11.png)
+# [-『YN』 SlapShot Skin v2](https://mega.nz/file/qtFmUDzL#DuDjJKCRHR35arwLUYc5gV4lLvVrvMUjUSKjmd4JIDE)
+![osu! Screenshot 2024 04 19 - 09 21 43 74](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/0d91e687-5e51-4f05-b0ac-89b75c9e55fa)
 
 # [ - SlapShot Skin v1.1『DT』](https://mega.nz/file/PhMwzDaQ#ZI_xca3agvwSa8OE-OMoUfIR7AHrUJ68ko50BCTTtz8)
 ![osu! Screenshot 2021 08 14 - 11 37 00 22](https://user-images.githubusercontent.com/83562005/129455927-1cdfbcc1-1f01-4b46-aae7-91ba05af6f7a.png)
