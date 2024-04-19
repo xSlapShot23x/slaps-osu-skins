@@ -1,4 +1,4 @@
-# Slap's osu! Skins
+# // slap's osu! Skins //
 
 ![ezgif-3-a9185e0282](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/f5386808-59b4-4d0e-9151-3ca398f40032)
 
