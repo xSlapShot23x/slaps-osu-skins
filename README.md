@@ -13,7 +13,7 @@ hallo ![hi](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/ffcd
 # [yugen slap edit](https://mega.nz/file/LtNwjQ5Y#NhtwEHQDD_FtLjhj7KodSpy3aKbo3Ba-FY3XB-f7crQ)
 ![osu! Screenshot 2023 12 20 - 20 31 56 42](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/f1959047-c0c0-4ecc-aa39-6d37ecb02b05)
 
-# [『slapshot』](https://mega.nz/file/r8dgVQRA#UCysdcWi29Vi0HtmfZEvp_zRHG1XjQ7Z2eXo3G6g0nE)
+# [『slapshot』](https://mega.nz/file/np9UFKLS#gXt2QYrgLzPJWtlAjA5nSPwCYwvM6WzrdQ6nbPKcnQA)
 ![osu! Screenshot 2024 04 18 - 23 09 45 13](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/b33e323a-7f99-4eea-878b-eecd6e6fe79f)
 
 # [-『DT』 SlapShot Skin v2](https://mega.nz/file/601kRCqD#GVdD9qwVnXZ8a2H_jl0zT53dNsmPXsOgOa3d7C7Xbx0)
