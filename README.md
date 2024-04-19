@@ -2,7 +2,7 @@
  
 ![hi](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/ffcd9c2a-7c16-4874-a3d8-9f00a054f672) hallo
 
-# *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU AND I'LL FIX IT*
+# *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU AND I'LL FIX IT :)*
 
 # [-『slapmonko』-](https://mega.nz/file/ToswCQCZ#r_OdYkOcwlebnDZUWOpL8W3aUiEHF_ChJbFTfWuD9mY)
 ![osu! Screenshot 2024 04 18 - 23 17 57 16](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/2f3814d5-5b3c-4d91-9b6a-d40e44ded309)
