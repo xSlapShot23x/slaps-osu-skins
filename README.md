@@ -1,6 +1,6 @@
 # Slap's osu! Skins
 
-![Untitled (6)](https://user-images.githubusercontent.com/83562005/118030929-ef094c00-b333-11eb-9732-54445e4d4b13.png)
+![ezgif-3-a9185e0282](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/f5386808-59b4-4d0e-9151-3ca398f40032)
 
 # *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU AND I'LL FIX IT*
 
