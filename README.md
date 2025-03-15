@@ -4,7 +4,7 @@
 
 # *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU "slapshot" AND I'LL FIX IT :)*
 
-# [slap +nm](https://mega.nz/file/qhtlRaBI#eD3rrZj_bSRoePAsgh0JB9kZTDMNQUmWBQDbRX8L3S4)
+# [ slap +nm ](https://mega.nz/file/qhtlRaBI#eD3rrZj_bSRoePAsgh0JB9kZTDMNQUmWBQDbRX8L3S4)
 ![osu! Screenshot 2025 03 15 - 06 30 15 61](https://github.com/user-attachments/assets/973c9db3-0389-4dfb-a822-3f0b5495518a)
 
 # [-『slapmonko』-](https://mega.nz/file/3g803CZZ#-pylgTBsxA5Gi6KrK8uOavx_V8rfhfnqfqacj12B364)
@@ -13,7 +13,7 @@
 # [-《slap & rektygon》](https://mega.nz/file/6sMEQYpI#WlQnGTAWmZtGbYaT1KUCiK5kmkpCTwCVUdlGMxH5F-o)
 ![osu! Screenshot 2024 04 18 - 22 56 40 15](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/4c0344c1-8147-4b53-99fd-702f54f94294)
 
-# [yugen slap edit](https://mega.nz/file/LtNwjQ5Y#NhtwEHQDD_FtLjhj7KodSpy3aKbo3Ba-FY3XB-f7crQ)
+# [yugen slap edit](https://mega.nz/file/bt8HQYwL#bjc72Mpd45wb0h9TwfGJvpbyyBKAG6zbG-e8i2K3wmo)
 ![osu! Screenshot 2023 12 20 - 20 31 56 42](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/f1959047-c0c0-4ecc-aa39-6d37ecb02b05)
 
 # [『slapshot』](https://mega.nz/file/np9UFKLS#gXt2QYrgLzPJWtlAjA5nSPwCYwvM6WzrdQ6nbPKcnQA)
