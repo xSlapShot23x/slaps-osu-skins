@@ -4,8 +4,11 @@
 
 # *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU "slapshot" AND I'LL FIX IT :)*
 
-# [-『slapmonko』-](https://mega.nz/file/ToswCQCZ#r_OdYkOcwlebnDZUWOpL8W3aUiEHF_ChJbFTfWuD9mY)
-![osu! Screenshot 2024 04 18 - 23 17 57 16](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/2f3814d5-5b3c-4d91-9b6a-d40e44ded309)
+# [slap +nm](https://mega.nz/file/qhtlRaBI#eD3rrZj_bSRoePAsgh0JB9kZTDMNQUmWBQDbRX8L3S4)
+![osu! Screenshot 2025 03 15 - 06 30 15 61](https://github.com/user-attachments/assets/973c9db3-0389-4dfb-a822-3f0b5495518a)
+
+# [-『slapmonko』-](https://mega.nz/file/3g803CZZ#-pylgTBsxA5Gi6KrK8uOavx_V8rfhfnqfqacj12B364)
+![osu! Screenshot 2025 03 15 - 06 31 03 29](https://github.com/user-attachments/assets/3237a87f-3db4-4ecd-a9cc-ce5ddc74378e)
 
 # [-《slap & rektygon》](https://mega.nz/file/6sMEQYpI#WlQnGTAWmZtGbYaT1KUCiK5kmkpCTwCVUdlGMxH5F-o)
 ![osu! Screenshot 2024 04 18 - 22 56 40 15](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/4c0344c1-8147-4b53-99fd-702f54f94294)
@@ -46,7 +49,7 @@
 # [ dracula ](https://mega.nz/file/758XjSaS#z2PrMC4tn_8EewDpHbMqurFghtLRntAusWdFTyRhSC8)
 ![osu! Screenshot 2022 04 22 - 09 05 39 01](https://user-images.githubusercontent.com/83562005/164720852-897fe91d-3533-4b11-9fff-1c835e7bff2a.png)
 
-# [ Aristia(Edit) ](https://mega.nz/file/Tt1HQRia#Rg2bno9YDIVsBv3Ep1MkgiJlHanM9Qa7HzFc0TIrPBc)
+# [ Aristia(Edit) ](https://mega.nz/file/y1NhzBCZ#dLfhJ2LNwFYV6aI4wHXO28XnRS8lNgnTyjPQ3buPYa0)
 ![osu! Screenshot 2022 04 22 - 09 13 05 96](https://user-images.githubusercontent.com/83562005/164721684-538abc4b-f248-42f8-9606-14df5e92f04e.png)
 
 # [ Seoul Edit ](https://mega.nz/file/OxcSzIDb#mDlzjvJBVq-Syi-x8JURr8z10Rrr_zSW3NSZPX2htUE)
@@ -64,8 +67,8 @@
 # [ New Noel ](https://mega.nz/file/20smWBhZ#AXQvm-AqIWGJ6csugg9fdMbVPv6N6ZUFUdbuU9Lk-Qg)
 ![osu! Screenshot 2021 05 12 - 16 23 50 35](https://user-images.githubusercontent.com/83562005/118045460-ecafed80-b345-11eb-9a24-8ddd73bcab2a.png)
 
-# [『Umbre x Tuna』](https://mega.nz/file/e9tlVBRA#wIGnkrpipVuvnqpL8jMnU5A2sc0YOu-KWi7v8_SUdFM)
-![osu! Screenshot 2021 05 12 - 17 20 43 28](https://user-images.githubusercontent.com/83562005/118045824-71027080-b346-11eb-8307-6097bffe2c7e.png)
+# [『Umbre x Tuna』](https://mega.nz/file/Lks0UaQI#kLF21Jr0jFS5yabhZhhgcvoxL3ms6qRJcrpT0SB-ipA)
+![osu! Screenshot 2025 03 15 - 06 42 14 82](https://github.com/user-attachments/assets/ad5a39e1-344d-4fc9-8f59-8fdc542ed576)
 
 # [ Slap x Jace ](https://mega.nz/file/2kMTGayK#3o4yZa6CYGeVyTWPLPUeK0QI0QVx_3cHpkJn7zxwxL8)
 ![osu! Screenshot 2021 05 12 - 17 25 37 88](https://user-images.githubusercontent.com/83562005/118046325-29301900-b347-11eb-88e0-197a51010033.png)
