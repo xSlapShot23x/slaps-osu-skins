@@ -1,6 +1,6 @@
 # // slap's osu! Skins //
  
-![hi](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/ffcd9c2a-7c16-4874-a3d8-9f00a054f672) hallo
+![hi](https://github.com/xSlapShot23x/slaps-osu-skins/assets/83562005/ffcd9c2a-7c16-4874-a3d8-9f00a054f672) hii
 
 # *IF ANY OF THE SKIN LINKS DO NOT WORK. DM ME ON OSU "slapshot" AND I'LL FIX IT :)*
 
